@@ -10,6 +10,6 @@ Social media can affect your mind by giving false information. Young kids are at
 
 ![Peter and Lois Anti-Vaccination](\images\minds\vaccination.jpg)
 
-This video behind this image is a perfect example of the importance of misleading information. Lois learns about how vaccinations are made, she is very concerned about her son having a vaccination This creates a huge problem in their town because soon after a public heath crisis takes over the whole town.
+This video behind this image is a perfect example of the importance of misleading information. Lois learns about how vaccinations are made, she is very concerned about her son having a vaccination.  This creates a huge problem in their town because soon after a public heath crisis takes over the whole town because of her intention of protecting her child.
 
 Sometimes your actions, although with good intentions can make the situation worse as well as hurt yourself or your family in the process.
