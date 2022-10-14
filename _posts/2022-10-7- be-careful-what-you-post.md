@@ -7,10 +7,10 @@ published: true
 ---
 
 ## Cancellation
- Cancellation means you no longer supported publicly.These posts are very dangerous because they can affect your livelihood as well as affect the people around you. Although this term is usually used around famous or influential people on social media, doesn't mean that it justs affects the rich people. Ordinary people if careless can be at risk of getting cancelled. 
+ Cancellation means you no longer supported publicly.These posts are very dangerous because they can affect your livelihood as well as affect the people around you. 
 
 ![Comments page](\images\negative-comments\comment.png)
-Just like this video for instance, Brian's post was able to create such an effect that not only did it affect his life but also affected his family. 
+Just like this video for instance, Brian's post was able to destroy his reputation in seconds after posting his comment carelessly. 
 
  ![Mob page](\images\negative-comments\mob.gif)
  
